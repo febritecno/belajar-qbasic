@@ -1,1 +1,1 @@
-#my fist learn language
+# pemprograman pertama yang aku palajari
