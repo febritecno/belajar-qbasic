@@ -1,1 +1,1 @@
-# pemprograman pertama yang aku palajari
+# pemprograman pertama yang aku pelajari
